@@ -4,4 +4,4 @@ Ninja Legends Roblox Hack: Auto Swing, Auto Buy, Auto Sell
 Developer: Ali.#1194
 Source: https://cheater.fun/hacks_roblox/7725-ninja-legends-roblox-hack-auto-swing-auto-buy-auto-sell.html
 
-https://i.imgur.com/uXjsUKJ.png
+[https://i.imgur.com/uXjsUKJ.png](https://cheater.fun/uploads/posts/2023-05/ninja-legends-roblox-hack.webp)
